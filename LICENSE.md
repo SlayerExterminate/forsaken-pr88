@@ -1,4 +1,4 @@
-
+forsaken secret Script is the best forsaken Script, featuring auto-collect and anti-ban. Safe and powerful for all your needs.
 
 
 
